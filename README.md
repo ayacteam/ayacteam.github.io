@@ -1,1 +1,0 @@
-# ayacteam.github.io
